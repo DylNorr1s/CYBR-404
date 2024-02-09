@@ -1,1 +1,1 @@
-
+Honestly the most important thing I learned from Megan with the career center was the bank of potential questions to ask recruiters. I've never had many problems thinking of open ended questions to ask, but more always helps. Otherwise I had already done everything we discussed at the last career fair. I would say I have an issue with rambling a little bit, especially when asking questions, so that's something I can probably work on.
